@@ -1,1 +1,1 @@
-# uralbek.v1
+# uralbek.uz
